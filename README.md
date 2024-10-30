@@ -1,4 +1,4 @@
-## Hi there bianca 👋
+## ola bianca 👋
 
 
 - 🔭 estudo no colégio morelli
