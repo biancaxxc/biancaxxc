@@ -1,4 +1,4 @@
-## ola bianca 👋
+## bem vindo ao perfil da bianca 👋
 
 
 - 🔭 estudo no colégio morelli
